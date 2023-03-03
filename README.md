@@ -11,6 +11,7 @@
 
 # Bkebi-GC Release
 
-[Download **newest** release](https://github.com/Bkebi-Group/Bkebi-GC-Release/releases/latest)
+[CLick Me PLS](https://www.youtube.com/results?search_query=give+member+pls)
+[Download Akebi 3.6](https://www.youtube.com/watch?v=dQw4w9WgXcQ)  
 
 **[Join our discord!](https://discord.gg/bkebi)**
